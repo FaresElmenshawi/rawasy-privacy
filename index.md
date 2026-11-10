@@ -26,7 +26,7 @@
 لا إعلانات في رواسي، ولا مشتريات داخل التطبيق، ولا اشتراكات. التطبيق مجاني وهدفه غير ربحي.
 
 ## التواصل
-للأسئلة والملاحظات: fareselmenshawi98@gmail.com
+للأسئلة والملاحظات: supportrawasy@gmail.com
 
 ---
 
@@ -50,7 +50,7 @@ Rawasy is a free, non-profit app for your daily portion of Quran, remembrance an
 
 **Ads and money:** no ads, no in-app purchases, no subscriptions. The app is free and its goal is non-profit.
 
-**Contact:** fareselmenshawi98@gmail.com
+**Contact:** supportrawasy@gmail.com
 
 ---
 
